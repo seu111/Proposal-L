@@ -1,1 +1,1 @@
-# Proposal-LiZa
+# Proposal-L
